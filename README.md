@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SingedSimp
-- 👀 I’m a shitting singed onetrick
+- 👀 I’m a shitty singed onetrick
 - 🌱 I am a bad programmer :D
 
 <!---
